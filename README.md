@@ -1,2 +1,1 @@
-# ajaymandal
-About Me
+Welcome to Ajay Mandal's profile! 
